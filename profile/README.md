@@ -1,7 +1,7 @@
 ## Hi there 👋
 
 
-Welcome to **Aroma WorshippersMusic Ministry Int'l**.
+Welcome to **Aroma Worshippers Music Ministry Int'l**.
 Our mission is to raise godly and skilled music ministers with excellent character for the advancement of the kingdom through inspired music.
 
 ---
